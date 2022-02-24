@@ -5,7 +5,7 @@
 - 📫 How to reach me 
 
 -Mail:mehmetdurmuss@icloud.com
--Instagram: meehmetdurmus
+-Instagram: instagram.com/meehmetdurmus
 -
 
 <!---
